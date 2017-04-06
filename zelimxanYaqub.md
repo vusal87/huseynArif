@@ -7,3 +7,5 @@ Cavid deyib olmek yasamaqdir
 Sersem yasamaq olme yamaqdi
 
 Murad da Zelimxani opur
+
+Allah rehmet elesin Zelimxana
