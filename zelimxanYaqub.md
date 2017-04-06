@@ -10,3 +10,5 @@ Murad da Zelimxani opur
 
 Allah rehmet elesin Zelimxana
 Allah Huseyn Arife de rehmet elesin
+
+changed by Murad
