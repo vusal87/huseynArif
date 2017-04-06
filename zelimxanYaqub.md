@@ -10,4 +10,4 @@ Murad da Zelimxani opur
 
 Allah rehmet elesin Zelimxana
 Allah Huseyn Arife de rehmet elesin
- de gorum sonda neyi tapdin sen
+
